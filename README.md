@@ -10,3 +10,5 @@ I don’t know how much longer I can pretend everything’s fine.
 But anyways, I’ve been listening to music again.
 Just for a while, it quiets the noise in my head.
 It doesn’t fix anything, but it feels... less heavy.
+
+Oh, and did I mention my spotify account - open.spotify.com/user/31pj32t2tm5tae6bk2sbjrpbjv74
