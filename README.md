@@ -7,8 +7,4 @@ I smile when I’m supposed to, talk when I have to — but it’s all empty.
 Even when I’m surrounded, I feel like I’m not really there.
 I don’t know how much longer I can pretend everything’s fine.
 
-But anyways, I’ve been listening to music again.
-Just for a while, it quiets the noise in my head.
-It doesn’t fix anything, but it feels... less heavy.
-
-Oh, and did I mention my spotify account - open.spotify.com/user/31pj32t2tm5tae6bk2sbjrpbjv74
+I'll be posting these blogs on my website soon.
